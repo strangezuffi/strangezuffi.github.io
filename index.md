@@ -12,3 +12,13 @@ Gandalf der Graue (später: der Weiße), auch Gandalf Graurock, Mithrandir (Sind
 * Du kannst nicht vorbei
 * Balrog still angry
 * Blowing the Horn of Gondor
+
+
+> Fell into shadow. Balrog such a prat. Had to do some quite
+> unspeakable things before he would let me leave the caverns.
+> Have decided not to tell the rest of Fellowship. Will make
+> up story about having engaged in huge battle instead. Off to
+> see Elrond to get quite unpleasant third degree burns in
+> embarassing places treated. Hope Elrond does not laugh at me.
+> If he does, will tell everyone about his dirty weekend with Sauron.
+> Ha!
