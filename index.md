@@ -1,4 +1,4 @@
-# Gandalf
+# Gandalf.io
 
 Gandalf ist einfach der coolste Charakter ev0r.
 
