@@ -22,3 +22,5 @@ Gandalf der Graue (später: der Weiße), auch Gandalf Graurock, Mithrandir (Sind
 > embarassing places treated. Hope Elrond does not laugh at me.
 > If he does, will tell everyone about his dirty weekend with Sauron.
 > Ha!
+
+<img src="https://i.pinimg.com/736x/5d/e3/52/5de352a755575a967bd37625a724fe22.jpg"/>
